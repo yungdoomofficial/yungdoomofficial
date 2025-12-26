@@ -3,6 +3,6 @@
 # 👋🏼 Hi, Welcome to my Profile!
 
 **This is my real account, Yes I'm the real yungDoom.**  
-If you want to contact me you can use **Discord**(x0ga) or **Telegram**(x0ga.actief)
+If you want to contact me you can use **Discord**(x0ga) or **Telegram**(x0gactief)
 
 </div>
